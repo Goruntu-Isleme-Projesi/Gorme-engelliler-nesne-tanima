@@ -1,0 +1,1 @@
+# Gorme-engelliler-nesne-tanima
