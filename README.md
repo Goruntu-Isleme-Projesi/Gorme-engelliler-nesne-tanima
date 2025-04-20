@@ -1,1 +1,2 @@
-# Gorme-engelliler-nesne-tanima
+# Gorme-engelliler-nesne-tanima 
+hüseyin samed
